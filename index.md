@@ -61,10 +61,12 @@ Successfully registered for classes, but due to current location schedule confli
 
 **How do you know this interaction is typical?**
 
-https://nsucurrent.nova.edu/2016/10/25/fifteen-minutes-between-classes-isnt-enough/
+
 Aldana Foigel, a student at Nova Southeastern University, stated in the Student-run Newspaper that her college had a 15 minute gap between classes. She argued that it was not enough time because she would always have a tight schedule and her peers would almost always arrive to classes late.  
-https://www.redandblack.com/uganews/full-capacity-uga-students-have-trouble-with-buses-during-first-week-of-classes/article_e9a926ca-0d26-11ec-b26e-b3c044bf55a2.html
+https://nsucurrent.nova.edu/2016/10/25/fifteen-minutes-between-classes-isnt-enough/
+
 UGA students have trouble with buses during the first week of school. Reported by Red & Black several students have problems navigating getting to class in the allotted time even with buses. Some have even reported walking to class is  preferred, since you are not always guaranteed a spot on the bus. 
+https://www.redandblack.com/uganews/full-capacity-uga-students-have-trouble-with-buses-during-first-week-of-classes/article_e9a926ca-0d26-11ec-b26e-b3c044bf55a2.html
 
 **DROP/ADD
 
